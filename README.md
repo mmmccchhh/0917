@@ -1,1 +1,4 @@
 # 0917
+
+
+kousinndekinai!
